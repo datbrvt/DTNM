@@ -1,2 +1,0 @@
-# DTNM
-beiuu
